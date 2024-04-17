@@ -1,4 +1,5 @@
-![photo_28_2024-04-17_06-51-49](https://github.com/austinxviii/austinxviii/assets/131591000/b8771520-fec1-4c09-b3cf-46f6028cb848)
+![jupiterSwirling](https://github.com/austinxviii/austinxviii/assets/131591000/fabf0b15-b232-4b8b-87a6-861219175cf2)
+## The stars are calling and we must go!
 <!--
 **austinxviii/austinxviii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
