@@ -1,2 +1,2 @@
-![photo_28_2024-04-17_06-51-49(copy)](https://github.com/austinxviii/austinxviii/assets/131591000/a86180bd-db4e-4475-92d1-723f518700d1)
+![photo_29_2024-05-04_20-42-04](https://github.com/austinxviii/SortingVisualizer/assets/131591000/8caf6dd2-278c-493a-80f2-a9c97c57c9be)
 **_<h4 align="center">The stars are calling and we must go!</h4>_**
